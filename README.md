@@ -92,9 +92,9 @@ Analizar y considerar  los terminos referentes a la ley de Ohm, Energía y poten
 ![image](https://user-images.githubusercontent.com/105722861/170405482-9153e262-a22a-481a-8105-4cc03b19fd68.png)
 
 
-
 4. VIDEO
 
+https://youtu.be/s_ll7x9ubV0
 
 5. CONCLUSIONES
 
